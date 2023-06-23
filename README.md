@@ -1,0 +1,2 @@
+# GlobalHitss
+Curso inducción
